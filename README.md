@@ -9,3 +9,7 @@ It is cloudy with a chance of Thunderstorms outside.
 I am doing this right after my daily standup.
 
 Shriya brought my lunch plate
+
+This is 07th Sep.
+
+Shriya is lying on the sofa doing chutu chutu and Suchita is on the phone with somone for cake order.
